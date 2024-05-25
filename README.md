@@ -1,2 +1,0 @@
-# Ethan Clunie's Portfolio
-
